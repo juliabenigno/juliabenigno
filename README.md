@@ -22,6 +22,6 @@
 ---
 
 ## 📫 Como me encontrar
-- [LinkedIn](www.linkedin.com/in/julia-giovana1711)  
+- [LinkedIn](www.linkedin.com/in/juliagiovanab)  
 - Email: juliagiooo17@gmail.com  
 - Maringá, PR – Brasil 🇧🇷
